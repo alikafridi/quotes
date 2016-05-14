@@ -19,3 +19,7 @@ Every once in a while I come across quotes that I like and want to remember and 
 “You might fail at whatever you do, so you might as well dream big, because then if you succeed, you succeed big.”
 
 [The Station](http://www.gettysburg.edu/dotAsset/7da4f91e-3473-4e09-b383-0ad97a0b50d5.pdf) - Robert Hastings
+
+"Rebecca had broken one of the unspoken rules of her hierarchical workplace; never witness the humiliation of your boss." - http://www.theguardian.com/world/2005/jan/26/gender.workandcareers
+
+"People say things happen for a reason. I reject that. Things don't happen for a reason, but you can find a purpose in the things that happen. The way you respond will ultimately define your character" - Jeff Huber
