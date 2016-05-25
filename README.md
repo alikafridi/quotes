@@ -29,3 +29,5 @@ Every once in a while I come across quotes that I like and want to remember and 
 "Once bitten, twice shy"
 
 "Looking back at my ambition to become a lawyer, it looks less like a plan for the future and more like an alibi for the present. **It was a way to explain to anyone who would ask—to my parents, to my peers, and most of all to myself—that there was no need to worry. I was perfectly on track.** But it turned out in retrospect that my biggest problem was taking the track without thinking really hard about where it was going." - [Peter Thiel's commencement address](http://fortune.com/2016/05/22/transcript-peter-thiel-hamilton/?xid=soc_socialflow_twitter_FORTUNE)
+
+"It's not win or lose. It's always win or learn" - Eric Lefkofsky
